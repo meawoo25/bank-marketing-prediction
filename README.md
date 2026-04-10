@@ -121,7 +121,7 @@ Customer likely to subscribe ✅
 
 ## 👩‍💻 Author
 
-* Your Name
+* Krishnaveni A
 
 ---
 
